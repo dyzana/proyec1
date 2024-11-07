@@ -1,2 +1,2 @@
-mejot theory big bang
+mejor theory big bang
 
